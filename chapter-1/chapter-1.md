@@ -1,5 +1,8 @@
-# CHAPTER 1
+# Vegetable Samosas
 
-Two hens and a goat went out on a stroll....
+Fried dumplings
 
-## More coming up in later chapters
+## Ingredients
+
+* Dough
+* Oil
